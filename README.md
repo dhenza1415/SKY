@@ -3,5 +3,5 @@
 # WAITING SELFBOT<b>
 
 
-●sebagian media tiak di masukan silahkan tambah sndiri biar mandiri..<b>
-●Cara intall kayak biasa ...
+●sebagian media tiak di masukan silahkan tambah sndiri biar mandiri..</b>
+●Cara intall kayak biasa ...</b>
